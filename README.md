@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+If you found this, it's probably because I was studying for the GH Foundations exam - _or trying at least_- lol
+
+# What I like:
+- Chicken
+- Bread
+- Bread with chicken
+
+## What I don't like:
+1. El chicharron de prensa
+1. El mondongo
